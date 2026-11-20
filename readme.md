@@ -1,1 +1,1 @@
-Quelle: https://m346.frickelbude.ch/go/index.html 
+Quelle: https://m346.frickelbude.ch/go/index.html    
